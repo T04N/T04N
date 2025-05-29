@@ -2,10 +2,7 @@
 
 
 Hi I'm Tev
-===============================
-
-* 🌍  I'm based in Viet Nam
-* ✉️  You can contact me at [minhtoan.work@gmail.com](mailto:minhtoan.work@gmail.com)
+You can contact me at [minhtoan.work@gmail.com](mailto:minhtoan.work@gmail.com)
 
 ### Skills
 
