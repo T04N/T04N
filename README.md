@@ -3,6 +3,7 @@
 
 Hi I'm Tev
 You can contact me at [minhtoan.work@gmail.com](mailto:minhtoan.work@gmail.com)
+https://minht04n.site/
 
 ### Skills
 
